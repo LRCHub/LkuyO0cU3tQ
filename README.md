@@ -1,0 +1,79 @@
+# Lyn – I believe
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+It′s time to
+unveil the hype y'all
+been waiting for
+It′s time to
+bring an end to question of
+who will win?
+It's us
+I used to have bad feeling
+Premonition of falling short
+Now I have no fear since
+we're here
+To fight it together
+I believe
+we can fly up in the sky
+One day we may just
+be able to touch down on a star
+Off the road we have to go
+The roadless path
+we shall proceed until the end
+of our roles
+There′s no turning back for us
+′cause we will never give up
+I thought that
+I told you I'm not a robot, no
+I thought
+I told you
+I′m not a phantom
+I'm in your face
+It′s time to show
+everything we got
+To find a way out
+from this fake mirage
+Our life is happening
+in front of you,
+right now
+It's time to seize it
+I believe
+we can fly up in the sky
+One day we may just
+be able to touch down on a star
+Off the road we have to go
+The roadless path we shall
+proceed until the end
+of our roles
+There′s no turning back for us
+'cause we will never give up
+It's our turn to get back
+To grab the future
+which we fully believe
+And it′s not given to us
+It′s earned
+And I believe
+we can fly up in the sky
+One day we may just
+be able to touch down on a star
+Off the road we have to go
+The roadless path we shall
+proceed until the end
+of our roles
+There's no turning back
+for us
+Because you know that
+I believe
+we can fly up in the sky
+One day we may just
+be able to touch down on a star
+Off the road we have to go
+The roadless path we shall
+proceed until the end
+of our roles
+There′s no turning back
+for us 'cause we will
+never give up
+```
